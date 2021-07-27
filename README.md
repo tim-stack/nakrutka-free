@@ -8,4 +8,4 @@ AVAILABLE SOCIAL NETWORKS:
  #TWITTER
  #YOUTUBE - NOT AVAILABLE AT THE MOMENT :(
 
-[LINK:](https://tim-stack/index.php/)
+[LINK:](https://tim-stack/nakrutka-free.github.io/index.php)
